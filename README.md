@@ -21,4 +21,4 @@ I'm a final-year **Computer Science and Engineering** student at **BRAC Universi
 
 ### 📫 Get in touch
 
-📧 faiza.zaman@g.bracu.ac.bd · 💼 [LinkedIn](https://www.linkedin.com/in/faizazaman1931)
+📧 faizazaman1931@gmail.com · 💼 [LinkedIn](https://www.linkedin.com/in/faizazaman1931)
